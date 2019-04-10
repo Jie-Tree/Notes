@@ -1,4 +1,4 @@
-#Studies And Notes
+#Studies And Notes#
 
 Here are some tips and notes.
 
